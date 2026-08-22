@@ -42,7 +42,7 @@ I specialize in bridging leadership, engineering, and governance to deliver prod
 
 (See my repositories for full project details and code samples.)
 
-https://github.com/hashrajiv?tab=repositories
+GitHub Repositories: [https://github.com/hashrajiv?tab=repositories]
 
 ---
 
