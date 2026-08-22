@@ -1,4 +1,4 @@
-# 👔 Rajiv Kumar — Principal Engineer (Banking & Compliance)
+# 👔 Rajiv Kumar — Principal Engineer | Banking & Compliance
 
 ## 🚀 About Me
 
